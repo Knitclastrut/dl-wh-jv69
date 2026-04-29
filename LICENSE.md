@@ -1,4 +1,4 @@
-
+deadlock wh smart Scripts - auto-hero hex timer and enemy hero true strike offers the most advanced deadlock wh scripts, with auto-hero hex timer and enemy hero true strike. Ideal
 
 
 
